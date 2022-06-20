@@ -21,3 +21,10 @@ sh install.aex if not work than use ./install.aex
 
 
 Subscribe »»» https://youtube.com/channel/UCN7GsBMmmTgLMF0A80MbWLg
+
+Instagram »»» Araf.ladla
+
+
+
+
+😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈😈
