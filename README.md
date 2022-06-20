@@ -3,6 +3,8 @@ How to Install Open the terminal and type following commands.  apt update  apt i
 How to Install
 Open the terminal and type following commands.
 
+Pkg install info 🥺
+
 apt update
 
 apt install git
